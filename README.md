@@ -1,1 +1,1 @@
-# memek_.py
+# Bangsat
